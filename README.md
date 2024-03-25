@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GGDoctor (Jacob)
+- 👀 I’m interested in cybersecutiy and web development
+- 🌱 I’m currently learning Computer Science at Sonoma State University. I plan on gradating this Spring 24.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: jmfranco02@protonmail.com is a good way to get in contact with me
+- 😄 Pronouns: he/him
